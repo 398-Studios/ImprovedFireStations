@@ -22,4 +22,4 @@ Therefore, responsibility for any damages caused by this product or its misuse r
 
 - Do not take credit for this modification. 
 
-©2019 RageMods All Rights Reserved
+©2019 Mr. RageMonster All Rights Reserved
